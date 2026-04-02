@@ -3,5 +3,5 @@ Profile picture by [mag inu](https://x.com/MAG_inu) (not my commission though)
 
 Not sure why you're even reading this, but hewwo anyway!! I also do some RE stuff.
 
-Don't be afraid to chat with me! I don't think I'm abrasive, but I also don't talk much.
+Don't be afraid to chat with me! I don't think I'm abrasive, but I also don't talk much.  
 You can do that on discord @mouthful_of_fox or on [steem](https://steamcommunity.com/profiles/76561198217349060/)
